@@ -1,0 +1,1 @@
+# Swipe-Revolution-Privacy-Policy
